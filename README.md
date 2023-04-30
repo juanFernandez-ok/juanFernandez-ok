@@ -6,5 +6,5 @@ My background is quite diverse ranging from working in the film industry as a fr
 
 When I am not coding I love to rock climb 🧗 and being in the outdoors 🏕️
 
-- 📫 How to reach me: [@ LinkedIn](https://www.linkedin.com/in/juancruzfernandez1/) 
+- 📫 How to reach me: [@ LinkedIn](https://www.linkedin.com/in/juancruzfernandez1/) OR jcfernandezok@gmail.com
 - 😄 Pronouns: he/him
